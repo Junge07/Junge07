@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Junge07
+- 👋 Hi, I’m @ashwinnepal7
 - 👀 I’m interested in learning new things and landing into a good opportutines
 - 🌱 I’m currently learning new ideas
 - 💞️ I’m looking to my connection, people to help me succeed.
